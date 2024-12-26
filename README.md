@@ -11,8 +11,11 @@ dni list:
 - copycats
 - toxic people
 ! insulting/bullying my friends results in an immediate block + removal from friends.
+
 ! if you want to insult me.
-! if you're under the age of 12 (I don't like talking to kids.)
+
+! if you're under the age of 12 (I don't like talking to kids, sorry not sorry.)
+
 ! if you make inappropriate jokes. (Catastrophical events and worse.)
 
 ✩ ｡:*: »───── ⋆♡⋆ ─────« :*: ｡✩
