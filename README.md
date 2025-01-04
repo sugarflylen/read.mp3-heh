@@ -13,8 +13,10 @@
 
 <p align="center"> 
 
-<p align="center"> dni list: hvydni proshippers, toxic ppl, copycats, homophobes, <h2>ANY</h2>fandom haters /except for tcoaal!)
-.  other than that that you're free to int!!
+<p align="center"> dni list: hvydni proshippers, toxic ppl, copycats, homophobes.
+.  other than that that you're free to int!! if you know hb,hh,tadc,bs,crk,dw,lacey's games then i so love u! /j/platonic ^w^
+![e02564c452c408582016eda0a35128c8](https://github.com/user-attachments/assets/7a70b67b-93e4-4bca-b3d7-aad0db66383a)
+
     
 <p align="center">  c+h only if you're my friend/ current skin contains 'c+h' otherwise, you're hidden.
 
