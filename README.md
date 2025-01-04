@@ -1,31 +1,25 @@
 # read.mp3-heh
-read :3
-- Welcome ᖭི༏ᖫྀ
+<h1 align="center"></[](i)>
 
-I speak Polish/English :D
 
-dni list:
-- proshippers
-- disrespectful behaviors against my religion
-- creeps/pedos
-- copycats
-- toxic people
+─── ⋅ ⁺ ✧  ⋅ ───
 
-! if you insult/bully my friends I'll bully you too.
 
-! if you're under the age of 12 (I don't like talking to kids, sorry not sorry.)
+</h1>
 
-! if you make inappropriate jokes. (Catastrophical events or wworse.)
 
-✩ ｡:*: »───── ⋆♡⋆ ─────« :*: ｡✩
+  
+<p align="center"> Hello!
 
-/ int / 
-- if you're not on the dni list obv.
-- if you know lacey's games, md, tadc, bs, phighting, dw, hh, hb, etc.
-- if you need somebody to talk to.
-- if you understand me having other friends and spending time with them, instead of you.
-- if you respect people.
-- if you like no-harm trolling!
+<p align="center"> 
 
-[ty for reading]
-     ᖭི༏ᖫྀ
+<p align="center"> dni list: hvydni proshippers, toxic ppl, copycats, homophobes, <h2>ANY</h2>fandom haters /except for tcoaal!)
+.  other than that that you're free to int!!
+    
+<p align="center">  c+h only if you're my friend/ current skin contains 'c+h' otherwise, you're hidden.
+
+
+
+
+
+<h1 align="center"></[](h)>
